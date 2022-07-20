@@ -1,2 +1,2 @@
 # -04041984
-actividad ing
+actividad ESTAMOS DEDICADOS A EMPRENDER EN EL AREA DE ING
